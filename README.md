@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi I'm a Developer and a Business strategy 
 
 <!--
 **Jpham2005/Jpham2005** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
